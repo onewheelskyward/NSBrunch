@@ -3,7 +3,7 @@ NSBrunch 2/23/13
 
 Wanted:
 
-Coffee
+Coffee - Justin (beans, AeroPress, ~10 mugs)
 
 Bacon
 
