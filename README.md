@@ -5,7 +5,7 @@ Wanted:
 
 Coffee - @incanus (beans, AeroPress, ~10 mugs)
 
-Bacon
+Bacon - @samgrover (20 strips)
 
 Pancakes - @onewheelskyward
 
