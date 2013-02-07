@@ -7,7 +7,7 @@ Coffee - @incanus (beans, AeroPress, ~10 mugs)
 
 Bacon - @samgrover (20 strips)
 
-Pancakes - @onewheelskyward
+Pancakes(∞) - @onewheelskyward
 
 Eggs (18) - @janineanne
 
