@@ -9,3 +9,9 @@ Bacon - @samgrover (20 strips)
 
 Pancakes - @onewheelskyward
 
+Eggs (18) - @janineanne
+
+OJ - @janineanne
+
+Champagne?
+
