@@ -1,9 +1,9 @@
 NSBrunch 2/23/13
 ========
 
-Location:
+Location: 
 
-Time: 
+Time: 10am. 
 
 
 Wanted:
