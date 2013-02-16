@@ -1,4 +1,6 @@
 NSBrunch 2/23/13
+Location:
+Time: 
 ========
 
 Wanted:
@@ -12,6 +14,9 @@ Pancakes(∞) - @onewheelskyward
 Eggs (18) - @janineanne
 
 OJ - @janineanne
+
+Quadrocopters - @caseorganic 
+
 
 Champagne?
 
