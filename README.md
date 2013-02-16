@@ -1,7 +1,10 @@
 NSBrunch 2/23/13
-Location:
-Time: 
 ========
+
+Location:
+
+Time: 
+
 
 Wanted:
 
@@ -15,9 +18,8 @@ Eggs (18) - @janineanne
 
 OJ - @janineanne
 
-Quadrocopters - @caseorganic 
+Quadrocopters and Guac - @caseorganic 
 
-
-Champagne?
+Champagne - @aaronpk 
 
 CORN SYRUP, HIGH FRUCTOSE CORN SYRUP, CANE SYRUP, WATER, CARAMEL COLORING, SODIUM BENZOATE, AND SORBIC ACID (ADDED AS A PRESERVATIVE ONLY)
