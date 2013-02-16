@@ -23,3 +23,4 @@ Quadrocopters and Guac - @caseorganic
 Champagne - @aaronpk 
 
 CORN SYRUP, HIGH FRUCTOSE CORN SYRUP, CANE SYRUP, WATER, CARAMEL COLORING, SODIUM BENZOATE, AND SORBIC ACID (ADDED AS A PRESERVATIVE ONLY)
+I mean, maple syrup. 
