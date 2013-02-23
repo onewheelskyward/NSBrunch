@@ -8,7 +8,7 @@ Time: 10am.
 
 Wanted:
 
-Coffee - @incanus (beans, AeroPress, ~10 mugs)
+Coffee - @incanus (1 lb. beans, AeroPress, 1 qt. half & half)
 
 Bacon - @samgrover (20 strips)
 
